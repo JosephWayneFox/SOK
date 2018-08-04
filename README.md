@@ -1,2 +1,0 @@
-# SOK
-Gaming Clan
